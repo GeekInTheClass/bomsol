@@ -31,7 +31,8 @@
 ## 옛날예능다시보기
 
 ## 영화리뷰
-
+- 드림텔러 (https://www.youtube.com/channel/UCpCiIDf9UrfRqte55FHWlYQ)
+- 엉준 (https://www.youtube.com/channel/UCZVr7RZO2qgaB8LYNwc7kkQ)
 ## 애니리뷰
 
 ## 애니더빙
